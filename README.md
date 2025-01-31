@@ -1,2 +1,7 @@
 # dynamic-desgin-noob
-As the repo name suggests.
+Man
+I
+Love
+Fauna
+
+hope I don't get nightmares.
